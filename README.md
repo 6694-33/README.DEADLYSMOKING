@@ -1,0 +1,2 @@
+# README.DEADLYSMOKING
+Motivational quotes 
